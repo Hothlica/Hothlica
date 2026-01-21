@@ -1,4 +1,4 @@
-me when i me when i me when i me when i me when i
+I wanna make stuff.
 
 <!---
 Hothlica/Hothlica is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
